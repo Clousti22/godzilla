@@ -23,3 +23,5 @@ If you like to watch Godzilla you can watch here! [Godzilla] (https://ww16.0123m
 | Sandra Brody       |Juliette Binoche|
 | Dr. Vivienne Graham| Sally Hawkins  |
 | Ford Brody        | Aaron  Johnson  |
+
+You can also watch the New movie entitled " Godzilla X Kong: The New Empire.
